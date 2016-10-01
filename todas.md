@@ -4,9 +4,9 @@
 
 ### Tirinhas de frango oriental com acelga e broto de feijão
 
-Fonte: Livro Panelinha Receitas que funcionam, pg 243
-Tempo: 15 minutos + 20 marinando
-Serve: 2 porções
+Fonte: Livro Panelinha Receitas que funcionam, pg 243  
+Tempo: 15 minutos + 20 marinando  
+Serve: 2 porções  
 
 - 3 filés de frango
 - 1 colher sopa de maisena
